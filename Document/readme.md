@@ -1,1 +1,1 @@
-Document is in the pdf formate
+Document is in the pdf 
